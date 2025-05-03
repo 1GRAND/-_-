@@ -1,4 +1,5 @@
 # *𝔍𝔒𝔈_𝔐𝔇* 𝗪𝗛𝗔𝗧𝗦𝗔𝗣𝗣 𝗕𝗢𝗧
+<a><img # *𝔍𝔒𝔈_𝔐𝔇* 𝗪𝗛𝗔𝗧𝗦𝗔𝗣𝗣 𝗕𝗢𝗧
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 <p align="left">

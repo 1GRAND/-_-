@@ -2,7 +2,7 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 <p align="left">
-  <a href="https://github.com/Neggy5">
+  <a href="https://github.com/1GRAND">
     <img alt="𝔍𝔒𝔈_𝔐𝔇 logo"  src="https://files.catbox.moe/1wkr12.jpg">
   </a>
 </p>
